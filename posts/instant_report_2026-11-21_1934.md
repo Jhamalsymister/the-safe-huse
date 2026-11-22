@@ -1,0 +1,50 @@
+# Instant News Report — Saturday, November 21, 2026, 07:34 PM
+
+**By Journalist Jhamal Symister** — Toronto
+
+## Top Stories
+
+- Lorne Doerkson sworn in as B.C. Premier, unveils pared-down cabinet - The Globe and Mail (The Globe and Mail) — https://news.google.com/rss/articles/CBMilwFBVV95cUxNMDF1a21acXZCTF9FS3M3REVaVU1VWENxMzdvLWxQTXY1VXZmbUVXSWdrbWlzc1VVUHk3cmRNTVZ0SHdaNEZOdG5jQmc4bEJYcG1HQ1phV0ZqUUdtOUN6UGFnWXNWUjM1T3hkQlJWUHFzS0xtc2FPZjZkSzU5NTZoTTBxclFBck96MHhSakhGeGhWOHdVNmN3?oc=5
+- Trump trade adviser hurls insults at federal government as Canada-U.S. trade talks heat up - CP24 (CP24) — https://news.google.com/rss/articles/CBMizgFBVV95cUxQVkc4cDlXaF9WbUNLSGF5T2p6SDhOU3Z5Wi1XeUh1ZS1XOEM1M3NvSjJhTWlvZVAtSkVhZk9YQUxSOXp0dVFTQUVtWFpvbFZpNnlGZTFsbEhUSkFPX2hKR0RfYV9jeHJOTVdrdmdxMTg2ektKOUhRN0FxSlVBcmpCa1Y2d3hOVm9CYlhSMHBZQWlCVjdMZ21tMHJFZEdIS1o5akRIVTdNdk90RDNxVG9xbDQwMkpRS1RTOG0wTkR3a1l3TVFvNmw5WndBRVdXUQ?oc=5
+
+## Canada
+
+- Pete Hegseth's secret memo to limit U.S.-Canada military cooperation - CBC (CBC) — https://news.google.com/rss/articles/CBMiWkFVX3lxTE9kM1YxWklPTkhIVXhzenJXcHI0MDB2Q280VFEyX0xjVmVNb1dfcW9jUnBIWWVYZVczNXpNd0dHcURSQTUyMnRLS0p4cVRXbGN1WnV0YzA2bG1yQQ?oc=5
+
+## World
+
+- Diplomats race to compromise on fossil fuels as Cop31 teeters on brink of failure – as it happened - The Guardian (The Guardian) — https://news.google.com/rss/articles/CBMi0gFBVV95cUxOc2tucHhyS2w1MjFJaW1pcHNsMnZlZFo4UVZuNTRWMUxLNlZSLUttdndINXVjaF9YTzItZDdZR2JkLWpESng2OHdqby1hODdGUXBZeGFUOFdVcHdfcTVXR19DMU5pbTdQeGFLRlZ3N2tMZzZJUjg1cjJISnh0aDhPNmJkWExUZVB1WExVOGRvTE9PVkpKbVVyX1hiRWE2dzhISXIwTnpzYi1taU1TV3FaTTdibHp5Q3Y5Y3loR1R4bkNZX2pQTmFPY3RBSktCTmctZEE?oc=5
+- Russian missiles hit Poland: What happened, and could NATO respond? - Al Jazeera (Al Jazeera) — https://news.google.com/rss/articles/CBMiqgFBVV95cUxObXJxS0Y2ZWlaREQtbEtfbmhwcFJibU9pOTdCalNJNGhlTElNSmFMZXN0Sy1YYTlVN2VfcGRpbFgtNFlKM0I3ZEtILWk1TTRTVG1KYkp1VmJqcldtNG1rVnY1cG5rMUppb29kekNKazBGUy1LMVRKeEtOcmd2cTdFNUQxVl9mS3Zld0VqbEpiSU9nQU82bGdqUUN3c0JlMHR6VHB4UHlxU2Fod9IBrwFBVV95cUxPWS1tWElsbWdpWUFTN3VyamFlYTd5UXhMLTI1R0NKa1NzamV5WVIwRndZRm5qOWgxclQwOEprdi1tb290VHFnZWZHMGtSTVJidmFZT3RJVWpKS3lscFl6N244akRLQ29UeDZGcVBiZjR4MkthYkdCRUxCdmhtZnd0eFl2ZWtaWDdEN3Ridy1nLUgzN2E3LXI1MnEyb2NxTHlMUllZcnd2MUlHYXIwS2tr?oc=5
+
+## Business
+
+- Ford reopens Canada auto plant, defying Trump tariffs - Japan Today (Japan Today) — https://news.google.com/rss/articles/CBMimAFBVV95cUxOSXVwOU1xUjZSV1lDYTVXSUE2emlRQUhkN0JCUmJRemsyWmItM2tTcUVpQ3VjR0dCdWFON0g5LTh3Y1dtNDE2M0JJSGdYUDZRaV9rYUp5bk5yTlRCZmJETjJvSzhOZDBuSUtnY01YUVdoZkZ1MHNGQ1RyMVFxbW1sa2stMWlhVlZmSXdwb3FGNnhQOERidE5meg?oc=5
+
+## Technology
+
+- GTA 6 Draws Review Bombing on Metacritic: Explained - JournalArta (JournalArta) — https://news.google.com/rss/articles/CBMiiAFBVV95cUxNTkI2emZrblJwek9EMGdxZ2dPZERWQWs2S0k4Vi1OdzZPNzhhamx6RUt6MHNCZUZQbU1pcmdXcEJYeWxOWDliNFBGM1EzTzhxdWdBaDZDblVGd2ItMmJRRGxVa3FWN0p0T1l0T0o2WjdhalZENy00dXI1bGFtazVEUHlpQ0lvS1Rz?oc=5
+
+## Science
+
+- Space station visible this weekend - PressReader (PressReader) — https://news.google.com/rss/articles/CBMifkFVX3lxTE1vdHY2akNuYi0tcE9CcUxLU0pBMmwyUnVGemdxOTlRU3lXSWU2dEp5Ym1MUFhMcWVEcWdFM0hkb0x4bmR2SnRkYmlNdk8tc2hKYmdFempBOGlXY2JKM1B5Ukw1ZFZ3UkF1QmlEOHJsT29CbTVmMXQwVlFDcHVndw?oc=5
+
+## Health
+
+- Despite early start, Canada's flu season may be 'far from peak' as holidays approach - CBC (CBC) — https://news.google.com/rss/articles/CBMic0FVX3lxTE15amZtczNMYmpqSjNGRldYQWVqc2ZrN2dyUWpCUVVCTENrYWNJVzdxd2x2MWo4cnVWMUNabko2MVYtWnVJMlBJdjRQSm02b2FOS3hVcHJNZUtaOEtpMVNKR0xFWXF3d3ZuRmFaN1dRMU5BVnc?oc=5
+
+## Sports
+
+- Chicago Blackhawks vs Calgary Flames Prediction, Picks & Odds | 21 Nov 2026 - Sportsgambler (Sportsgambler) — https://news.google.com/rss/articles/CBMiugFBVV95cUxQZ3ZMVXFhV05weWk4cUFrZDkzeW5vWnkxT0xJbTM2MWFFTjM0dHBVTDNtTnZtNFVpZ2dJcnFBOXlnUWZqUmVwajN3T1luY0RIZEppRXlTaC1haG9sWm5XblEzZ0hwTE4zUTdubTd1cW5yNUliVldZMzRyc0lsSXZfcVFxajIzV3dOVFotWkJwLWFHQTQxWURuNjNpWlpReFZZUDNfX2ppQUNKWEFMdnFuemJsZER4THBDcUE?oc=5
+
+## Entertainment
+
+- New documentary: Princess Kate speaks candidly about how cancer changed her body and mind - Euronews.com (Euronews.com) — https://news.google.com/rss/articles/CBMiwgFBVV95cUxQS0pPOVJUVUdQQWhvYTZNVXhDR3ZDdHRfY2pYOUlFalU5WVlVTzdRYmpyNm02LWs1VEI2b2hzaEZTR2s1MTN0NWwyU3NZdDF6Zm9oOU92aTk3cWl3dHdZYlVacnRzTHFTU2tjSW5jb3ZWQm93SjA4YWpoUVpLVmxIOWZCYVRwQjJvd0lMS2tCbFhEWmRSMnp2TG5uX21jaTkyaFBSaW9oX1lpVUJRZndSVDhNTGw4VmdHWHpjWEpTZzRIZw?oc=5
+- Brielle Biermann Marries Billy Seidl in Florida, Kroy and Brothers Absent - TMZ (TMZ) — https://news.google.com/rss/articles/CBMid0FVX3lxTFBoQ2hTdkN3LTgyNlQtX0NwOE9qamZFMERtX2ZtNmxSbkU3YWhNQ09Tb0ZTQTNubHl6a2thdzl4UzdQS2E1NmU3MzlzcjRmelJ6YzQtMkk2RElCTFFlV2wtRnNDYnFaQlVYSVBaVmJjMWk1OXJMNWpr?oc=5
+- Katy Perry and Justin Trudeau put on united front in Italy after Russell Brand's shock marriage admission - Page Six (Page Six) — https://news.google.com/rss/articles/CBMi6AFBVV95cUxPYi1ib2g2TW15d1c5QmFDYzlSVU0temE1RmZjU01meTRXcVhQQ0pfMmxPRWtULXJxSU1tdVlTWVpVNWVoUHVYaHBGeFBBZVFvQXNuenZ4MmtQZExOU3FlMWFYVHNIOGVLLVdEZE4tQmE4RTY0V1pUa004eFM0UmRQclJmR2E3MERKemVIRWhLWk9UYWd3X01Fb1NEVWxhSS01bXdzQ3N5Qkc4QmIyQ25yenpzLU9EUUdkQ3hvWlRLcmV4Vi0zaDNlczNoeTFrS0RVd09sY0RDYlFFeW9HaU10X1RObkR5WFFW?oc=5
+
+## Nvidia NVDA
+
+- Nvidia’s (NVDA) AI Demand Visibility into 2029 Keeps Me Bullish - The Globe and Mail (The Globe and Mail) — https://news.google.com/rss/articles/CBMi3wFBVV95cUxPdDF3cDQ5T1RLQjBfNHBXUlMzNzNNNmJPRUlEVEhBSFhGQVFyMTA4aUFpZVNRclFJZmFheE1FelN1SXpKQ3pOS29qVExtOTNyejEyX3RMUXFXMDZQVmlVZDBvb29ad0lTM2ZDUmtzTnMxWEdkYjM0LUFoRnJqbWsxV0RHMDJfSVVDc0h4dDVLZ2JJNk9scFpDSTRZOWhfckxYcjFtTFA3UVhOX1Q2TkRTb19uNXVjOGhZT0FLMDA5WlY5bjM4bGxqRXlEbUl0N0NUTl85anRVbXFpY0J6SG9V?oc=5
+
+---
+*Reported instantly by Journalist Jhamal Symister.*
